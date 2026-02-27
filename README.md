@@ -1,0 +1,1 @@
+# lexique.activite2
